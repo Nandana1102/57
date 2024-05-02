@@ -1,1 +1,1 @@
-getlost!
+getlost! idiot
